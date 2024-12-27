@@ -166,6 +166,8 @@ Note: You can search for your idea and start to build your own design as it is o
     - [Mockup World](https://www.mockupworld.co/)
     - [Graphic Burger](https://graphicburger.com/)
     - [Is graphics](https://www.ls.graphics/free-mockups)
+    - [Freebies Mockup](https://www.freebiesmockup.com/) — Download free popular graphic offered by Freebies Mockup can be used for personal and commercial purposes so you can include it in your clients' presentations.
+    - [Photoshop PSD Mockups](https://www.photoshopvideotutorial.com/) — Using a freebies Photoshop PSD mockups is a great way to showcase your design in a professional and realistic way. It is also a great way to save money.
 
 ### Portfolio
 
